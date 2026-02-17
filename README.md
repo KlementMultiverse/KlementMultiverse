@@ -1,4 +1,4 @@
-Thanks to AI and so many good people, who made to code.
+Thanks to AI and so many good people, who made me an engineer.
 
 ## 👨‍💻 Author
 
